@@ -1,6 +1,4 @@
-# tinawina
-Hi Guys!
+# Xochitl
+This is for my GF, Xochitl, for when the time is right!
 
-I made this little webpage after a friend showed me something similar my girlfriend had liked on instagram. 
-
-Feel free to use this code for your site or however y'all see fit! 
+I know we are together but yes I will still cutely ask you out lol!
